@@ -1,3 +1,1 @@
-Hello I am Junsten
-
-I am a person trying to learn how to code and stuff, maybe some bit of gaming, photoshop and After Effects
+Just a dude whos trying to grow, expanding my knowledge in Coding, Photoshop and Video Editing making things for people to see and love...
